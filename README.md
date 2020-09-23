@@ -1,1 +1,1 @@
-# Hyderabadi-Biryani1
+Hyderabadi biryani is generally believed to have originated in the kitchens of the Nizam of Hyderabad, of the historic Hyderabad State, as a blend of Mughlai and Iranian cuisine. Hyderabadi biryani is a staple of Indian cuisine. Types. Hyderabadi biryani is of two types: the kachchi (raw) biryani, and the pakki (cooked) biryani.
